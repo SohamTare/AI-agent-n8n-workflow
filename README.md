@@ -47,4 +47,4 @@ I'm currently exploring:
 
 ---
 
-Made with ☕ and curiosity by [Soham Tare](https://www.linkedin.com/in/soham-tare/)
+Made with ☕ and curiosity by [Soham Tare](https://www.linkedin.com/in/soham-tare-b006771a9/)
